@@ -1,1 +1,2 @@
 Catherine Wallin
+wallinc@oregonstate.edu
